@@ -1,4 +1,4 @@
-# Pasta
+# 90 Minute Pasta
 
 ## Ingredients
 
